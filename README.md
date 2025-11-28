@@ -39,7 +39,7 @@
 
 ## 🌐 Onde me encontrar
 
-📩 **Email:** insira aqui seu e-mail  
+📩 **Email:** rehzinho8@gmail.com 
 🔗 **LinkedIn:** coloque seu link caso tenha  
 
 ---
